@@ -1,4 +1,4 @@
-# Nilu Rathgama
+# Nilu RA
 My personal repository
 
 ## 🌐 Socials:
